@@ -1,4 +1,4 @@
-# Bonjour, je suis Francis EKOH ETSIN 👋
+# Bonjour, je suis EKOH ETSIN 👋
 
 **Développeur agentique · Web, données et IA** · Abidjan, Côte d'Ivoire 🇨🇮
 
